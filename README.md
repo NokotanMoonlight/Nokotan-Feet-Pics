@@ -7,3 +7,9 @@ Languages planned next:
 日本語
 
 Русский (Россия)
+
+Deutsch
+
+Italiano
+
+Nederlands
