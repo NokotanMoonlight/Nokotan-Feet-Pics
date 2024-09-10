@@ -10,6 +10,14 @@ Si vous souhaitez que j'ajoute un fichier, veuillez m'envoyer un e-mail à [bife
 これは、英語、スペイン語、フランス語、日本語でのノコタンの足の写真のコレクションです。
 ファイルを追加したい場合は、[bifemboytechnerd84@gmail.com] までファイルまたはファイルのリンクをメールしてください。可能であれば、最高品質でお願いします。
 
+Please note: Most of the images have no text/dialogue and thus are universal
+
+Por favor, ten en cuenta: La mayoría de las imágenes no tienen texto/diálogo y, por lo tanto, son universales.
+
+Veuillez noter : La plupart des images n'ont pas de texte/dialogue et sont donc universelles.
+
+ご注意ください: ほとんどの画像にはテキストやセリフがないため、どの言語でも共通に理解できます。
+
 Languages planned next:
 
 Русский (Россия)
